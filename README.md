@@ -1,2 +1,1 @@
-# mrsurajsingh.github.io
-Sattebaazi just for fun
+# Suraj Singh Portfolio
